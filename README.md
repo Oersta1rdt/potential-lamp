@@ -1,2 +1,1 @@
-# potential-lamp
-My Github profile 
+Oersta1rdt/Oersta1rdt
